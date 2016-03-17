@@ -15,4 +15,4 @@ Chrome 擴展商店的舊版本不再更新, 我也想上傳到官方平臺， �
 
 背景圖片來自 セルゲイ
 
-洛天依 影象及商標來自 ideolo＠二日目西あ60a & VOCALOID-CHINA
+洛天依 影像及商標來自 ideolo＠二日目西あ60a & VOCALOID-CHINA
